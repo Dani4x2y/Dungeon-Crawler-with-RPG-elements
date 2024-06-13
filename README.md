@@ -1,0 +1,1 @@
+# Plat-dot-NET-33INF-SSI-SP-A_PROJEKT_Daniel_Fuks
